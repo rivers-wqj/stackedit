@@ -6,7 +6,7 @@
 
 
 **2024.1.22**
-https://www.ets.org/toefl/test-takers/ibt/about/content/writing.html
+看托福官网的[写作指南](https://www.ets.org/toefl/test-takers/ibt/about/content/writing.html)
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTEzMzI4ODk4XX0=
+eyJoaXN0b3J5IjpbMTQ5OTYzMDcyN119
 -->
