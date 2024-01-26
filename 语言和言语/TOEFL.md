@@ -13,8 +13,8 @@
 缺点可能就是不是日更，每4天一次。
 
 2.
-Dailogues
+Dialogues
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTUxNjEyMjYxMSwtMTM5NTA5MjgyNiwxND
-k5NjMwNzI3XX0=
+eyJoaXN0b3J5IjpbNTA4ODkzOTU1LC0xMzk1MDkyODI2LDE0OT
+k2MzA3MjddfQ==
 -->
