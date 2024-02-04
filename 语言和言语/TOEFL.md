@@ -5,7 +5,7 @@
 > 记录一下托福准备流程
 
 
-**2024.1.22-28**
+**2024.1.22-2.4**
 精神状态远比想象的更加不稳定，并没有像想象中那样用1月份的最后一周把托福考试的计划、材料制定完全。
 
 - 写作：看托福官网的[写作指南](https://www.ets.org/toefl/test-takers/ibt/about/content/writing.html)，网页里还有28个 Writing for an Academic Discussion practice questions 的练习。10分钟的时间确实还比较赶。不过适合我，不用想太多可以张口就来。第一篇练习是4/5。感觉还行，不过估计到5应该很难。
@@ -16,6 +16,6 @@
 **The Great Women Artists**
 **Dialogues**
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyMTQ3MjE2NTEsNTA3NDcwOTMsNTA4OD
+eyJoaXN0b3J5IjpbLTExNjExMDM3MDUsNTA3NDcwOTMsNTA4OD
 kzOTU1LC0xMzk1MDkyODI2LDE0OTk2MzA3MjddfQ==
 -->
