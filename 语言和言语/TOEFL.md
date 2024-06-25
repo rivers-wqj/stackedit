@@ -28,10 +28,11 @@ Secondly, through succeeding construct a similar boat which was made with the sa
 Thirdly, the reading passage notes old markings resemble letters of old irish alphabet. The speaker, on the other hand, mentions that there were also some pictures among those markers. But irish alphabet does not include any picture, which might just be something  carved by natives.
 So, the author and the lecturer hold very different views on the possibility of Brendan’s voyage to North America.
 
-The topic of success or optimism, which is more important generates much discussion since 
+The topic of success or optimism, which is more important generates much discussion since many years ago.
+I personally agree with being optimistic and happy when we fail is more important. First of all, most people might just normal and average, which means mm
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNzYwNTI2MzExLDEzNzIzNzExNzMsMzk5Mz
-AzNDQ4LC0xMTYxMTAzNzA1LDUwNzQ3MDkzLDUwODg5Mzk1NSwt
-MTM5NTA5MjgyNiwxNDk5NjMwNzI3XX0=
+eyJoaXN0b3J5IjpbMTYwNDk2MzM2MiwxMzcyMzcxMTczLDM5OT
+MwMzQ0OCwtMTE2MTEwMzcwNSw1MDc0NzA5Myw1MDg4OTM5NTUs
+LTEzOTUwOTI4MjYsMTQ5OTYzMDcyN119
 -->
