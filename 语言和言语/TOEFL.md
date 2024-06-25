@@ -15,7 +15,11 @@
 2.光听科学美国人不太够，尤其是在艺术方面会有所欠缺。就另外再找了一些播客，先放在这。
 **The Great Women Artists**
 **Dialogues**
+
+**2024.06.25**
+明天考试，没想到一月底报名，几乎没有准备。考前一天窝在星巴克
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTExNjExMDM3MDUsNTA3NDcwOTMsNTA4OD
-kzOTU1LC0xMzk1MDkyODI2LDE0OTk2MzA3MjddfQ==
+eyJoaXN0b3J5IjpbNzc5MDQ1MTA1LC0xMTYxMTAzNzA1LDUwNz
+Q3MDkzLDUwODg5Mzk1NSwtMTM5NTA5MjgyNiwxNDk5NjMwNzI3
+XX0=
 -->
