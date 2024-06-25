@@ -22,11 +22,11 @@
 
 Integrated writing
 
-Generally speaking,
+Generally speaking, the reading passage states that Brendan and his crew reached North America. However, the lecturer claimes thos
 firstly, the author says the stories in Brendan's voyage have some similarities with the locations of those islands on the way from Iceland to North America. Hower
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTE0MDQ4NTg0MiwzOTkzMDM0NDgsLTExNj
+eyJoaXN0b3J5IjpbLTEzNjY3MDU5MiwzOTkzMDM0NDgsLTExNj
 ExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1LC0xMzk1MDkyODI2
 LDE0OTk2MzA3MjddfQ==
 -->
