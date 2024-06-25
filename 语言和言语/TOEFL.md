@@ -20,9 +20,12 @@
 明天考试，没想到一月底报名，几乎没有准备。考前一天窝在星巴克抱佛脚。但是又想要报名十一月份的考试了。。。还是等回国再说。不差这一两天。
 
 
+Integrated writing
+
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbNDUxNjcxMDY5LC0xMTYxMTAzNzA1LDUwNz
+eyJoaXN0b3J5IjpbMzk5MzAzNDQ4LC0xMTYxMTAzNzA1LDUwNz
 Q3MDkzLDUwODg5Mzk1NSwtMTM5NTA5MjgyNiwxNDk5NjMwNzI3
 XX0=
 -->
