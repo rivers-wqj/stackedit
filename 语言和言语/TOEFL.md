@@ -22,11 +22,13 @@
 
 Integrated writing
 
-Generally speaking, the reading passage states that Brendan and his crew reached North America. However, the lecturer claimes thos
-firstly, the author says the stories in Brendan's voyage have some similarities with the locations of those islands on the way from Iceland to North America. Hower
+Generally speaking, the reading passage states that Brendan and his crew reached North America. However, the lecturer claimes those corresponding evidence is not so much strong.
+Firstly, the author says the stories in Brendan's voyage have some similarities with the locations of those islands on the way from Iceland to North America. However, the professor contends that the crew could might just arrive in Faroe islands or iceland.
+Secondly, the writer 
+curragh
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzNjY3MDU5MiwzOTkzMDM0NDgsLTExNj
+eyJoaXN0b3J5IjpbLTU3NTAwOTUxMywzOTkzMDM0NDgsLTExNj
 ExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1LC0xMzk1MDkyODI2
 LDE0OTk2MzA3MjddfQ==
 -->
