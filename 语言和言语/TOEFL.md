@@ -28,8 +28,10 @@ Secondly, through succeeding construct a similar boat which was made with the sa
 Thirdly, the reading passage notes old markings resemble letters of old irish alphabet. The speaker, on the other hand, mentions that there were also some pictures among those markers. But irish alphabet does not include any picture, which might just be something  carved by natives.
 So, the author and the lecturer hold very different views on the possibility of Brendan’s voyage to North America.
 
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM3MjM3MTE3MywzOTkzMDM0NDgsLTExNj
-ExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1LC0xMzk1MDkyODI2
-LDE0OTk2MzA3MjddfQ==
+eyJoaXN0b3J5IjpbOTEzMTE0OTQ1LDEzNzIzNzExNzMsMzk5Mz
+AzNDQ4LC0xMTYxMTAzNzA1LDUwNzQ3MDkzLDUwODg5Mzk1NSwt
+MTM5NTA5MjgyNiwxNDk5NjMwNzI3XX0=
 -->
