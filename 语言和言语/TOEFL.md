@@ -22,10 +22,10 @@
 
 Integrated writing
 
-firstly, the author syas 
+firstly, the author says the stories in Brendan's voyage have some similarities with the loa
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY5NjE1MjM3LDM5OTMwMzQ0OCwtMTE2MT
-EwMzcwNSw1MDc0NzA5Myw1MDg4OTM5NTUsLTEzOTUwOTI4MjYs
-MTQ5OTYzMDcyN119
+eyJoaXN0b3J5IjpbMTM1MDA2NTk4NSwzOTkzMDM0NDgsLTExNj
+ExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1LC0xMzk1MDkyODI2
+LDE0OTk2MzA3MjddfQ==
 -->
