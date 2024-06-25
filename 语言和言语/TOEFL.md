@@ -22,10 +22,11 @@
 
 Integrated writing
 
-firstly, the author says the stories in Brendan's voyage have some similarities with the loa
+Generally speaking,
+firstly, the author says the stories in Brendan's voyage have some similarities with the locations of those islands on the way from Iceland to North America. Hower
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTM1MDA2NTk4NSwzOTkzMDM0NDgsLTExNj
+eyJoaXN0b3J5IjpbMTE0MDQ4NTg0MiwzOTkzMDM0NDgsLTExNj
 ExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1LC0xMzk1MDkyODI2
 LDE0OTk2MzA3MjddfQ==
 -->
