@@ -29,10 +29,10 @@ Thirdly, the reading passage notes old markings resemble letters of old irish al
 So, the author and the lecturer hold very different views on the possibility of Brendan’s voyage to North America.
 
 The topic of success or optimism, which is more important generates much discussion since many years ago.
-I personally agree with being optimistic and happy when we fail is more important. First of all, most people might just normal and average, which means many people could not have any chance to gain great success. Secondly, the short life of a human being is like an adventure, which me
+I personally agree with being optimistic and happy when we fail is more important. First of all, most people might just normal and average, which means many people could not have any chance to gain great success. Secondly, the short life of a human being is like an adventure, where the experience and happiness matters more. In this case, even failure plays a key role during the journey, so why the success is more important. Thirdly, being successful or not is objective while being optimistic is subjective
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MDc5NjE4ODMsMTM3MjM3MTE3MywzOT
-kzMDM0NDgsLTExNjExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1
-LC0xMzk1MDkyODI2LDE0OTk2MzA3MjddfQ==
+eyJoaXN0b3J5IjpbNjYzOTk2MTM1LC0xODA3OTYxODgzLDEzNz
+IzNzExNzMsMzk5MzAzNDQ4LC0xMTYxMTAzNzA1LDUwNzQ3MDkz
+LDUwODg5Mzk1NSwtMTM5NTA5MjgyNiwxNDk5NjMwNzI3XX0=
 -->
