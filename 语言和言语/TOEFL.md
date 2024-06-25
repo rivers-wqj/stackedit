@@ -24,11 +24,11 @@ Integrated writing
 
 Generally speaking, the reading passage states that Brendan and his crew reached North America. However, the lecturer claimes those corresponding evidence is not so much strong.
 Firstly, the author says the stories in Brendan's voyage have some similarities with the locations of those islands on the way from Iceland to North America. However, the professor contends that the crew could might just arrive in Faroe islands or iceland.
-Secondly, the writer 
+Secondly, through succeeding construct a similar boat which was made with the same materials and was able to be drivthe writer believes 
 curragh
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTU3NTAwOTUxMywzOTkzMDM0NDgsLTExNj
-ExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1LC0xMzk1MDkyODI2
-LDE0OTk2MzA3MjddfQ==
+eyJoaXN0b3J5IjpbLTE3NjU3MzYyNTcsMzk5MzAzNDQ4LC0xMT
+YxMTAzNzA1LDUwNzQ3MDkzLDUwODg5Mzk1NSwtMTM5NTA5Mjgy
+NiwxNDk5NjMwNzI3XX0=
 -->
