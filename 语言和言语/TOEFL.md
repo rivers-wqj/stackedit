@@ -19,13 +19,12 @@
 **2024.06.25**
 明天考试，没想到一月底报名，几乎没有准备。考前一天窝在星巴克抱佛脚。但是又想要报名十一月份的考试了。。。还是等回国再说。不差这一两天。
 
-
 **2024.06.26**
 托福考得稀碎orz
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTIwMzUzNDEwMDEsLTY1MTAyMjMyMiwtMT
-gwNzk2MTg4MywxMzcyMzcxMTczLDM5OTMwMzQ0OCwtMTE2MTEw
-MzcwNSw1MDc0NzA5Myw1MDg4OTM5NTUsLTEzOTUwOTI4MjYsMT
-Q5OTYzMDcyN119
+eyJoaXN0b3J5IjpbLTE3ODE4NTIzLC0yMDM1MzQxMDAxLC02NT
+EwMjIzMjIsLTE4MDc5NjE4ODMsMTM3MjM3MTE3MywzOTkzMDM0
+NDgsLTExNjExMDM3MDUsNTA3NDcwOTMsNTA4ODkzOTU1LC0xMz
+k1MDkyODI2LDE0OTk2MzA3MjddfQ==
 -->
